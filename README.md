@@ -26,5 +26,4 @@ The Fandoms i'm rarely/barely in::
 - South Park
 
 - And if you wanna instead chat private and all... My Discord user is ' kosmic.0 '
-
-- Also please don't be mean towards me becuase i have no idea what's happening.
+Also please don't be mean or rude towards me or even Harass me without a reason becuase i have no idea what's happening.

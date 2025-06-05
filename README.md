@@ -7,7 +7,7 @@ My Kid is missing please help me!!!
 - Freely C+H (cuddle+hug) on Pony Town! No need to ask ;-; ,,, Also free to interact!! i very have huge comf!!!
 - Sometimes i might be AFK !!! 
 
-- My Fandoms are ::
+My Fandoms are ::
 - Forsaken
 - The Robloxian: Until Dawn
 - Phighting

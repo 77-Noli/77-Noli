@@ -5,7 +5,8 @@ My Kid is missing please help me!!!
 
 - HELLO!!! YOu can call me " Kosmic " !!! Seba can only call me Fran ^_^ ...
 - Freely C+H (cuddle+hug) on Pony Town! No need to ask ;-; ,,, Also free to interact!! i very have huge comf!!!
-- Sometimes i might be AFK !!! 
+- Sometimes i might be AFK !!!
+- I sometimes instead c+h ppl with a " C+h " on their name becuase i want cuddles... ;-;
 
 My Fandoms are ::
 - Forsaken

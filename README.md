@@ -6,7 +6,7 @@ I love Rabbits!!!
 
 i love seals!!!
 
-j love my husband morr. :))
+i love my husband morr❤️🎀🌈 :))
 
 I'm very freaky when I'm around with my husband :)) !!! 
 

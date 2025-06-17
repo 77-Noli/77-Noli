@@ -3,6 +3,9 @@ Seally.
 I love Rabbits!!!
 i love seals!!!
 j love my husband morr. :))
+I'm very freaky when I'm around with my husband :)) !!! 
+And my hubby clipped my freaky chats :33
+. Rubs my belly 🤪
 
 Fandum:
 - The Robloxian: Until Dawn

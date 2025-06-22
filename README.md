@@ -1,3 +1,5 @@
+Silly me, i sometimes randomly draw on people's strawpage if they followed me!!!, i'm not forcing people to follow me to get their strawpage drawn, you can just whisper me if you want me to draw on ur strawpage n any characters to request :))
+
 Water.
 
 Seally.
